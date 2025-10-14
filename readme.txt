@@ -1,1 +1,1 @@
-Салам алейкум!
+Ua Aleikum salam
